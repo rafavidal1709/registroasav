@@ -13,4 +13,4 @@ III – EDITAL DE CONVOCAÇÃO: Edital convocando todos os interessados para a r
 
 IV – REQUERIMENTO: solicitando o registro da Pessoa Jurídica neste Serventia. <<< OK!
 
-V- DBE: Documento Básico de Entrada na Receita Federal. <<< FALTA
+V- DBE: Documento Básico de Entrada na Receita Federal. <<< EM ANÁLISE PELO CARTÓRIO
